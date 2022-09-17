@@ -1,2 +1,2 @@
 # urantia-kor00-nyc
-Original Korean translation of The Urantia Book by Urantia Society of Greater New York (Original) created and maintained by TC Kim
+The Original Korean Translation of The Urantia Book sponsored by Urantia Society of Greater New York created and maintained by TC Kim.
